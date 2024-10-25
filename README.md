@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @aroojah23
 - 👀 I’m interested in coding, music, gaming, and film!
-- 💞️ I’m looking to collaborate on python projects
 - 📫 How to reach me: through my email alamarooj23@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I used to be a rower in high school!
